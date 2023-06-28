@@ -12,4 +12,17 @@ barandreckt.luis@escola.pr.gov.br
 
 luisgustavoviana85@gmail.com
 
-https://media.tenor.com/iuaXmEKNFf0AAAAd/tesla-nikola.gif
+
+
+
+
+
+
+
+
+
+
+
+
+
+![](https://media.tenor.com/BHW3RBWkQqMAAAAC/nikola-tesla-no.gif)
